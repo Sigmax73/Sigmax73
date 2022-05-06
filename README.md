@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sigmax73
+- 👋 Hi, I’m @mofassirmobeen
 - 👀 I’m interested in Blogging
 - 🌱 I’m currently learning Blogging and affiliate merketin
 - 💞️ I’m looking to collaborate on bloggers
